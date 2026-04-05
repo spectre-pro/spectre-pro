@@ -3,4 +3,4 @@ And can know more about me at
 [Website](https://spectre-pro.github.io)  
 [YouTube Channel](https://www.youtube.com/@spectre-pro)  
 [bilibili](https://b23.tv/teXIVBB)  
-[more...](https://www.260410.xyz)  
+[more...](https://www.spexva.com)  
